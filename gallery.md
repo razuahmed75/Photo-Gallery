@@ -1,4 +1,3 @@
-<img width="1407" height="768" alt="Group 1 (1)" src="https://github.com/user-attachments/assets/c1815166-ff64-41e0-a684-43cb9bf52b12" />
 ![pexels-dorran-737683-1643280](https://github.com/user-attachments/assets/9d2fedd5-6212-49ad-b633-f2aa44ffd11a)
 ![pexels-timmossholder-3612885](https://github.com/user-attachments/assets/0e24697b-2a0d-486d-b7ae-39f187c36127)
 ![pexels-tima-miroshnichenko-8327639](https://github.com/user-attachments/assets/c1215b20-9b4a-4c83-b6c4-07638c2d68f0)
