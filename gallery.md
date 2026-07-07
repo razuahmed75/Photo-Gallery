@@ -1,3 +1,4 @@
+<img width="1407" height="768" alt="Group 1 (1)" src="https://github.com/user-attachments/assets/c1815166-ff64-41e0-a684-43cb9bf52b12" />
 ![pexels-dorran-737683-1643280](https://github.com/user-attachments/assets/9d2fedd5-6212-49ad-b633-f2aa44ffd11a)
 ![pexels-timmossholder-3612885](https://github.com/user-attachments/assets/0e24697b-2a0d-486d-b7ae-39f187c36127)
 ![pexels-tima-miroshnichenko-8327639](https://github.com/user-attachments/assets/c1215b20-9b4a-4c83-b6c4-07638c2d68f0)
@@ -19,3 +20,4 @@
 ![pexels-kindelmedia-7054758](https://github.com/user-attachments/assets/19fedf7f-0b9f-407f-921b-a46f9f1a8ab4)
 ![pexels-karolina-grabowska-5412500](https://github.com/user-attachments/assets/9572bfcb-a8f9-4a34-878e-80443b95dc5b)
 ![pexels-julienblt-923311](https://github.com/user-attachments/assets/ebdf2400-0f6d-4e03-a5a0-2a763a094845)
+<img width="1407" height="768" alt="Group 1 (1)" src="https://github.com/user-attachments/assets/5eefe9d1-0095-411f-a53f-737da4adaf75" />
